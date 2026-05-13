@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Affinity Photo for macOS filter with advanced Affinity Photo for macOS Filter | auto-retouch + typography tools. Featuring auto-retouch and typography tools, it's
 
 
 
